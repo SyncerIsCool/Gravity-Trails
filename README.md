@@ -1,0 +1,1 @@
+NOTE: This game is still in development! The game can be changed at any moment and a new verson can be established! This version (OG/Main version) has only 3 levels, and more is to be added in the future!
